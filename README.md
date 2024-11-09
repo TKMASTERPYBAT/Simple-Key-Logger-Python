@@ -1,0 +1,1 @@
+You can buy the full version soon
